@@ -1,0 +1,1 @@
+One day, A monkey was sitting on a tree and a crocodile came to be his friend.
